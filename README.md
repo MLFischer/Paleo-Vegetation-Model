@@ -1,0 +1,1 @@
+Fischer, M. L., Bachofer, F., Yost, C. L., Bludau, I. J., Schepers, C., Foerster, V., ... & Junginger, A. (2021). A Phytolith supported biosphere-hydrosphere predictive model for southern Ethiopia: Insights into paleoenvironmental changes and human landscape preferences since the last glacial maximum. Geosciences, 11(10), 418.
